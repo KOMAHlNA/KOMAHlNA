@@ -18,6 +18,6 @@ ${\color{#8d916d} read}$ ${\color{#a2bf63} rentry}$. hi <a href="https://github.
 </tr>
 </table>
   
-⠀ ⠀ ⠀<a href="https://x.com/redactedhaunt">art credit</a>. ⊹ ࣪ ˖![](https://komarev.com/ghpvc/?username=KOMAHlNA&color=929C50&label=clovers♡)   ⸝⸝ ⠀<br><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&size=17&duration=1900&pause=900&color=929C50&width=77&height=27&lines=%EF%B8%B5%E0%B9%91%CB%8A%CF%89%CB%8B+%E2%99%AF+%F3%A0%81%90" alt="Typing SVG" /></a>
+⠀ ⠀ ⠀art cr: <a href="https://x.com/redactedhaunt"> ①</a> + <a href="https://www.tiktok.com/@peakksie?_r=1&_t=ZN-9A0m1tOxAn8"> ❷</a>. ⊹ ࣪ ˖![](https://komarev.com/ghpvc/?username=KOMAHlNA&color=929C50&label=clovers♡)   ⸝⸝ ⠀<br><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&size=17&duration=1900&pause=900&color=929C50&width=77&height=27&lines=%EF%B8%B5%E0%B9%91%CB%8A%CF%89%CB%8B+%E2%99%AF+%F3%A0%81%90" alt="Typing SVG" /></a>
 <br>
   <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled120_20260919125136.png" alt="Pen" width="190" height="20">  
